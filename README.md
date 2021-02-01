@@ -1,1 +1,0 @@
-# whitecockatiels.github.io
